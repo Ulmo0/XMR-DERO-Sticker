@@ -1,1 +1,1 @@
-A easy and way to everyone download the sticker. Share it!
+An easy away to everyone download the sticker. Share it!
